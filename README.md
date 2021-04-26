@@ -1,1 +1,0 @@
-# mranyo.github.io
